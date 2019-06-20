@@ -15,6 +15,12 @@ Open your eyes
 Look up to the skies and see
 I'm just a poor boy, I need no sympathy
 
+------- 3 --------
+Because I'm easy come, easy go
+A little high, little low
+Anyway the wind blows, doesn't really matter to me, to me
+
+
 ------- 4 --------
 Mama, just killed a man
 Put a gun against his head
@@ -27,11 +33,13 @@ Mama, oh oh
 Didn't mean to make you cry
 If I'm not back again this time tomorrow
 Carry on, carry on, as if nothing really matters
+
 -------6---------
 Too late, my time has come
 Sends shivers down my spine
 Body's aching all the time
 Goodbye everybody I've got to go
+
 
 ------- 7 --------
 
