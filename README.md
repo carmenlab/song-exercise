@@ -1,5 +1,8 @@
 # Bohemian Rhapsody
+
 ### Queen
+
+
 
 ------- 1 --------
 Is this the real life?
@@ -16,10 +19,19 @@ I'm just a poor boy, I need no sympathy
 
 
 
+
 Too late, my time has come
 Sends shivers down my spine
 Body's aching all the time
 Goodbye everybody I've got to go
+
+
+------- 4 --------
+Mama, just killed a man
+Put a gun against his head
+Pulled my trigger, now he's dead
+Mama, life had just begun
+But now I've gone and thrown it all away
 
 ------- 5 --------
 Mama, oh oh
@@ -27,11 +39,18 @@ Didn't mean to make you cry
 If I'm not back again this time tomorrow
 Carry on, carry on, as if nothing really matters
 
+
 ------- 7 --------
+
 Gotta leave you all behind and face the truth
+
 Mama, oh oh (anyway the wind blows)
+
 I don't want to die
+
 Sometimes wish I'd never been born at all
+
+
 ------- 9 --------
 I'm just a poor boy and nobody loves me
 He's just a poor boy from a poor family
