@@ -63,6 +63,11 @@ Bismillah, we will not let you go, let him go
 Bismillah, we will not let you go, let me go
 (Will not let you go) let me go (never, never let you go) let me go (never let me go)
 
+------- 11 --------
+Oh oh no, no, no, no, no, no, no
+Oh mama mia, mama mia, mama mia let me go
+Beelzebub has a devil put aside for me for me for me
+
 -------12-------
 So you think you can stop me and spit in my eye
 So you think you can love me and leave me to die  
