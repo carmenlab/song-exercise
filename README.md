@@ -2,6 +2,8 @@
 
 ### Queen
 
+
+
 ------- 1 --------
 Is this the real life?
 Is this just fantasy?
@@ -13,6 +15,7 @@ No escape from reality
 Open your eyes
 Look up to the skies and see
 I'm just a poor boy, I need no sympathy
+
 
 
 
@@ -38,10 +41,16 @@ Carry on, carry on, as if nothing really matters
 
 
 ------- 7 --------
+
 Gotta leave you all behind and face the truth
+
 Mama, oh oh (anyway the wind blows)
+
 I don't want to die
+
 Sometimes wish I'd never been born at all
+
+
 ------- 9 --------
 I'm just a poor boy and nobody loves me
 He's just a poor boy from a poor family
@@ -67,6 +76,7 @@ Anyone can see
 Nothing really matters
 Nothing really matters to me
 Anyway the wind blows
+
 
 Compositores: Freddie Mercury
 Letra de Bohemian Rhapsody © Sony/ATV Music Publishing LLC
