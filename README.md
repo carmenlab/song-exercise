@@ -5,19 +5,15 @@ Is this the real life?
 Is this just fantasy?
 Caught in a landslide
 
-------- 1 --------
-Is this the real life?
-Is this just fantasy?
-Caught in a landslide
-
-
 ------- 2 --------
 No escape from reality
 Open your eyes
 Look up to the skies and see
 I'm just a poor boy, I need no sympathy
-
-
+------- 3 --------
+Because I'm easy come, easy go
+A little high, little low
+Anyway the wind blows, doesn't really matter to me, to me
 
 
 Too late, my time has come
