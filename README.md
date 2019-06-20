@@ -11,6 +11,12 @@ Sends shivers down my spine
 Body's aching all the time
 Goodbye everybody I've got to go
 
+------- 3 --------
+Because I'm easy come, easy go
+A little high, little low
+Anyway the wind blows, doesn't really matter to me, to me
+
+
 ------- 7 --------
 Gotta leave you all behind and face the truth
 Mama, oh oh (anyway the wind blows)
