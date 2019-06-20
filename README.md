@@ -8,10 +8,26 @@ Is this the real life?
 Is this just fantasy?
 Caught in a landslide
 
+
+------- 2 --------
+No escape from reality
+Open your eyes
+Look up to the skies and see
+I'm just a poor boy, I need no sympathy
+
+
+
+
 Too late, my time has come
 Sends shivers down my spine
 Body's aching all the time
 Goodbye everybody I've got to go
+
+------- 5 --------
+Mama, oh oh
+Didn't mean to make you cry
+If I'm not back again this time tomorrow
+Carry on, carry on, as if nothing really matters
 
 ------- 7 --------
 Gotta leave you all behind and face the truth
@@ -34,6 +50,12 @@ Bismillah, we will not let you go, let me go
 Oh oh no, no, no, no, no, no, no
 Oh mama mia, mama mia, mama mia let me go
 Beelzebub has a devil put aside for me for me for me
+
+-------12-------
+So you think you can stop me and spit in my eye
+So you think you can love me and leave me to die  
+Oh baby can't do this to me baby  
+Just gotta get out just gotta get right outta here
 
 ------- 13 --------
 Oh oh oh yeah, oh oh yeah
