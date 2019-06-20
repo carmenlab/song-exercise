@@ -6,6 +6,13 @@ Is this the real life?
 Is this just fantasy?
 Caught in a landslide
 
+------- 2 --------
+No escape from reality
+Open your eyes
+Look up to the skies and see
+I'm just a poor boy, I need no sympathy
+
+
 Too late, my time has come
 Sends shivers down my spine
 Body's aching all the time
