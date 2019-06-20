@@ -58,6 +58,7 @@ Spare him his life from this monstrosity
 Easy come easy go will you let me go
 Bismillah, no we will not let you go, let him go
 
+
 ------- 10 --------
 Bismillah, we will not let you go, let him go
 Bismillah, we will not let you go, let me go
