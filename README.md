@@ -1,6 +1,10 @@
 # Bohemian Rhapsody
 ### Queen
 
+------- 1 --------
+Is this the real life?
+Is this just fantasy?
+Caught in a landslide
 
 Too late, my time has come
 Sends shivers down my spine
