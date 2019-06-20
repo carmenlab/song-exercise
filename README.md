@@ -1,4 +1,5 @@
 # Bohemian Rhapsody
+
 ### Queen
 
 ------- 1 --------
@@ -10,6 +11,13 @@ Too late, my time has come
 Sends shivers down my spine
 Body's aching all the time
 Goodbye everybody I've got to go
+
+------- 4 --------
+Mama, just killed a man
+Put a gun against his head
+Pulled my trigger, now he's dead
+Mama, life had just begun
+But now I've gone and thrown it all away
 
 ------- 7 --------
 Gotta leave you all behind and face the truth
@@ -28,7 +36,6 @@ Bismillah, we will not let you go, let him go
 Bismillah, we will not let you go, let me go
 (Will not let you go) let me go (never, never let you go) let me go (never let me go)
 
-
 ------- 13 --------
 Oh oh oh yeah, oh oh yeah
 Nothing really matters
@@ -36,7 +43,6 @@ Anyone can see
 Nothing really matters
 Nothing really matters to me
 Anyway the wind blows
-
 
 Compositores: Freddie Mercury
 Letra de Bohemian Rhapsody © Sony/ATV Music Publishing LLC
