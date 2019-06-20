@@ -1,5 +1,9 @@
 # Bohemian Rhapsody
+
 ### Queen
+
+
+
 ------- 1 --------
 Is this the real life?
 Is this just fantasy?
@@ -16,10 +20,19 @@ A little high, little low
 Anyway the wind blows, doesn't really matter to me, to me
 
 
+
 Too late, my time has come
 Sends shivers down my spine
 Body's aching all the time
 Goodbye everybody I've got to go
+
+
+------- 4 --------
+Mama, just killed a man
+Put a gun against his head
+Pulled my trigger, now he's dead
+Mama, life had just begun
+But now I've gone and thrown it all away
 
 ------- 5 --------
 Mama, oh oh
@@ -27,11 +40,22 @@ Didn't mean to make you cry
 If I'm not back again this time tomorrow
 Carry on, carry on, as if nothing really matters
 
+
 ------- 7 --------
+
 Gotta leave you all behind and face the truth
+
 Mama, oh oh (anyway the wind blows)
+
 I don't want to die
+
 Sometimes wish I'd never been born at all
+------- 8 --------
+I see a little silhouetto of a man
+Scaramouch, Scaramouch will you do the Fandango
+Thunderbolt and lightning very very frightening me
+Gallileo, Gallileo, Gallileo, Gallileo, Gallileo, figaro, magnifico
+
 ------- 9 --------
 I'm just a poor boy and nobody loves me
 He's just a poor boy from a poor family
@@ -43,7 +67,6 @@ Bismillah, no we will not let you go, let him go
 Bismillah, we will not let you go, let him go
 Bismillah, we will not let you go, let me go
 (Will not let you go) let me go (never, never let you go) let me go (never let me go)
-
 
 -------12-------
 So you think you can stop me and spit in my eye
