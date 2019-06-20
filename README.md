@@ -6,15 +6,24 @@ Is this the real life?
 Is this just fantasy?
 Caught in a landslide
 
-Too late, my time has come
-Sends shivers down my spine
-Body's aching all the time
-Goodbye everybody I've got to go
+
+------- 2 --------
+No escape from reality
+Open your eyes
+Look up to the skies and see
+I'm just a poor boy, I need no sympathy
 
 ------- 3 --------
 Because I'm easy come, easy go
 A little high, little low
 Anyway the wind blows, doesn't really matter to me, to me
+
+
+
+Too late, my time has come
+Sends shivers down my spine
+Body's aching all the time
+Goodbye everybody I've got to go
 
 
 ------- 7 --------
@@ -34,6 +43,12 @@ Bismillah, we will not let you go, let him go
 Bismillah, we will not let you go, let me go
 (Will not let you go) let me go (never, never let you go) let me go (never let me go)
 
+
+-------12-------
+So you think you can stop me and spit in my eye
+So you think you can love me and leave me to die  
+Oh baby can't do this to me baby  
+Just gotta get out just gotta get right outta here
 
 ------- 13 --------
 Oh oh oh yeah, oh oh yeah
