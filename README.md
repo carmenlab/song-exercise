@@ -1,6 +1,7 @@
 # Bohemian Rhapsody
 ### Queen
 
+Estrofa 6
 Too late, my time has come
 Sends shivers down my spine
 Body's aching all the time
