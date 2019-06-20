@@ -1,8 +1,6 @@
 # Bohemian Rhapsody
 ### Queen
 
-<<<<<<< HEAD
-=======
 ------- 1 --------
 Is this the real life?
 Is this just fantasy?
@@ -64,7 +62,6 @@ Anyone can see
 Nothing really matters
 Nothing really matters to me
 Anyway the wind blows
->>>>>>> 3ac10006a084e9e455cf54f8b8334f817fbfae4f
 
 
 Compositores: Freddie Mercury
